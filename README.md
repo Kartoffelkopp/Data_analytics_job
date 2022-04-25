@@ -1,2 +1,1 @@
 # Data_analytics_job
-https://www.stepstone.de/stellenangebote--Data-Analyst-CRM-m-w-d-Teltow-bei-Berlin-Verti-Versicherung-AG--8164403-inline.html?rltr=1_1_25_seorl_m_0_0_0_0_1_0
